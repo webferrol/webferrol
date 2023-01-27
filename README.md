@@ -20,4 +20,4 @@ Y alguna más...
 
 ## Encuéntrame en:
 
-[![LinkedIn](https://www.linkedin.com/in/webferrol)
+[LinkedIn](https://www.linkedin.com/in/webferrol)
